@@ -1,4 +1,4 @@
-# SD-SX-CORE-LITE-Enry86-01-Aprile-2021-SX-OS-FREE-UNLOCKED
+# SD-SX-CORE-LITE SX-OS-FREE-UNLOCKED
 Sd Preconfigurata per modelli di Nintendo Switch con chip (iPatched Erista Lite Mariko)
 
 SD SX CORE LITE Enry86 Release 01/04/2021 SX OS LICENCE.DAT LIBERA!
